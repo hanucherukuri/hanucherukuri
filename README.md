@@ -4,4 +4,4 @@ My name is Hanumanth Cherukuri currently pursuing Master's Data Science from Kin
 
 I am from India, living in London.
 
-You can find me on www.linkedin.com/in/h-cherukuri
+You can find me on www.linkedin.com/in/hcherukuri03
